@@ -1,1 +1,0 @@
-# hirokrr.girhub.io
